@@ -9,7 +9,7 @@ I am competent and a quick learner but
 I don't have the gift to find what I need well. 
 I also have a lifetime membership to the Programming Hub app with a really large amount of different programming courses in English.
 
-  You will receive all information about me by writing to me by e-mail: btomcio00@gmail.com 
+  You will receive all information about me by writing to me by e-mail: t.brzakala9256@gmail.com 
 
 Regards and thank you for your attention.
 <!---
