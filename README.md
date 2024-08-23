@@ -2,7 +2,7 @@ Hi,
 I'm @DZiKu9256, 
 I identify online as InfinityMaster24. 
 My name is Tomi, I come from Poland 
-and I've already experienced 24 years.
+and I've already 24 years old.
 
 My interests include online computer games, 
 I love motoring and recently I have been delving 
