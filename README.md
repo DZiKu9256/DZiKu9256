@@ -47,8 +47,8 @@ available exclusively on the IMTomi24 website.
 
 Over time, the clicker game will be transformed into 
 a tool for mining one of the two planned cryptocurrencies:
-• * LittleTomiCoin (LTiC) - a smaller mined unit,
-• * TomiCoin (TiC) - the main currency that I want to introduce 
+• LittleTomiCoin (LTiC) - a smaller mined unit,
+• TomiCoin (TiC) - the main currency that I want to introduce 
 in trading on various platforms.
 
 Technologies and Tools:
